@@ -1,4 +1,4 @@
-# Maroon 5 – Memories
+# マルーン5 – Memories
 
 > **歌詞登録ステータス：プレーン歌詞のみ**
 
